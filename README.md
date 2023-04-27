@@ -9,3 +9,6 @@ Ecco perche sono qui. allo studiare con tutta la mia testa.
 #### La piu spessa cosa che prendeva tutte le forze era lo sport.
 #### Il mio obiettivo per 'sta settimana e' prestare piu attenzione allo studio in Netologia, piu attenzione di programmare. 
 ## Ripetere tutto ed andare avanti!
+
+## Bonjour!
+### j'ai rencontré une belle fille, Elle est française. Je suis très heureux. Elle est très intelligente, gentille, drôle et charmante.
