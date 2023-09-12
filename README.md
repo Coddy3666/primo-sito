@@ -12,3 +12,5 @@ Ecco perche sono qui. allo studiare con tutta la mia testa.
 
 ## Bonjour!
 ### j'ai rencontré une belle fille, Elle est française. Je suis très heureux. Elle est très intelligente, gentille, drôle et charmante.
+
+## Ahora yo comienzo estudiar espanol porque me gusta hablar este linguaje y la clima en Spagna.
